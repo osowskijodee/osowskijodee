@@ -1,1 +1,1 @@
-👋 Hi, I’m @osowskijodee
+👋 Hi
